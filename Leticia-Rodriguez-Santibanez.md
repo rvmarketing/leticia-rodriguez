@@ -1,77 +1,46 @@
-Homenaje familiar Escritora · Desde 1943
+# Leticia Rodríguez Santibáñez · Escritora
 
-Autora
+Espacio familiar · Escritora activa · Punta Arenas
 
-# Leticia *Rodríguez* Santibáñez
+## Leticia *Rodríguez* Santibáñez
+Escritora originaria de Punta Arenas, nacida en Nochebuena de 1943. Activa, saludable y llena de energía, esposa de Héctor Rodríguez y querida bisabuela de una familia que celebra cada uno de sus días y sus letras.
 
-Escritora originaria de Punta Arenas, nacida en Nochebuena de 1943. Esposa de Héctor Rodríguez y bisabuela de quienes hoy leen esta página.
+- **Nacimiento:** 24 de diciembre de 1943
+- **Origen:** Punta Arenas, Magallanes
+- **Actividad:** Escritora activa
+- **Estado:** Saludable y en plena vitalidad
+- **Esposo:** Héctor Rodríguez
 
-Nació el 24 dic 1943 Punta Arenas Escritora
+---
 
-Retrato de Leticia Rodríguez Santibáñez sonriendo, con una blusa blanca de encaje
+## Sobre ella: Energía, lucidez y pasión por las letras
+Leticia Rodríguez Santibáñez es una escritora vital y entusiasta. Nació en Punta Arenas, completó su enseñanza media en el Liceo José Francisco Vergara, sirvió con orgullo y vocación como Dama de Rojo en el Hospital Gustavo Fricke y comparte su vida en matrimonio con Héctor Rodríguez.
 
-AutoraRodríguez Santibáñez, L.
+Esta página fue creada con todo el amor y orgullo de su familia para compartir su pasión por la literatura y sus vivencias. Gracias a Dios, Leticia goza de excelente salud, se mantiene activa y continúa disfrutando cada jornada rodeada del cariño de sus hijos, nietos y bisnietos.
 
-Nacimiento24 dic 1943
+---
 
-OrigenPunta Arenas
+## Trayectoria: De Punta Arenas a la creación literaria
+- **Origen:** Punta Arenas, Magallanes.
+- **Estudios:** Egresada del Liceo José Francisco Vergara.
+- **Servicio:** Dama de Rojo en el Hospital Gustavo Fricke.
+- **Familia:** Casada con Héctor Rodríguez; pilar de un hogar lleno de vida.
+- **Vocación:** Escritora activa y constante lectora.
 
-OficioEscritora
+---
 
-EsposoHéctor Rodríguez
+## Sus poemas: Versos de Leticia
+En este espacio iremos publicando los poemas, relatos y reflexiones que Leticia escribe, celebrando su talento y su voz viva en cada palabra.
 
-Sobre ella
+---
 
-## Una vida contada en palabras
+## Celebración: Una fiesta doble cada año
+- **Años de vida y salud:** 82 años
+- **Vitalidad:** 100% activa y lúcida
+- **Cumpleaños:** Cada 24 de diciembre la familia festeja por partida doble: la Nochebuena y el cumpleaños de Leticia, compartiendo juntos su alegría, su salud y su constante entusiasmo.
 
-Leticia Rodríguez Santibáñez es escritora. Nació en Punta Arenas, terminó la enseñanza media en el Liceo José Francisco Vergara, trabajó como Dama de Rojo en el Hospital Gustavo Fricke y se casó con Héctor Rodríguez.
+> "Para nuestra bisabuela escritora: gracias por tu fuerza, tu alegría y por inspirarnos día a día con tu vitalidad y tus historias."
+> — *Con todo el amor y admiración de tu familia.*
 
-Esta página nació en la familia, con el cariño de sus bisnietos, para reunir en un solo lugar su nombre, su rostro y su historia. Con el tiempo se irán sumando sus libros, textos y recuerdos.
-
-Su historia
-
-## De Punta Arenas a la escritura
-
-Origen
-
-Punta Arenas
-
-Estudios
-
-Terminó la enseñanza media en el Liceo José Francisco Vergara.
-
-Trabajo
-
-Dama de Rojo en el Hospital Gustavo Fricke.
-
-Matrimonio
-
-Se casó con Héctor Rodríguez.
-
-Oficio
-
-Escritora.
-
-Sus poemas
-
-## Versos de Leticia
-
-Poema · título · fecha
-
-Pronto compartiremos aquí los poemas de Leticia, cada uno con su título y sus versos tal como ella los escribió.
-
-El tiempo, en cifras
-
-## Una fecha que se celebra dos veces
-
-**82**Años cumplidos
-
-**57**Días para su cumpleaños
-
-Cada 24 de diciembre la familia se reúne por Nochebuena y, a la vez, por el cumpleaños de Leticia.
-
-> Para la bisabuela que escribe: gracias por cada palabra que nos dejas.
-
-Con cariño, tu familia
-
-Leticia Rodríguez Santibáñez 24 · 12 · 1943
+---
+Leticia Rodríguez Santibáñez · Celebrando su vida, salud y literatura
